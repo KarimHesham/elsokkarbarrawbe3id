@@ -17,6 +17,4 @@ or testing it using instagram or facebook apps through the campaign's
 
 ## Facebook page: https://www.facebook.com/elsokkarbarrawb3eed
 
-
-## Test link: https://www.facebook.com/fbcameraeffects/tryit/2332695970367095/
  
